@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with best aura ascension Scripts, the #1 Script. Includes auto-farm and auto-upgrade for unbeatable
 
 
 
